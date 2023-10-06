@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Avinash Kumar
+Hi, I’m Avinash Kumar
 
 
